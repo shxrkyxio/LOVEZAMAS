@@ -8,7 +8,7 @@ My form is justice, and my form is the world. Worship me, give praise unto me, m
 
 ![nghhhhhhhhh](https://www.gifcen.com/wp-content/uploads/2024/03/zamasu-gif-4.gif)
 
-Anyway, you can send me on ig if you want. DB is not the only thing I like, BUT ZAMASU 🔥. 
+Anyway, you can send me a message on ig if you want. DB is not the only thing I like, BUT ZAMASU 🔥. 
 
 # 𝗟𝗶𝗸𝗲;;
 MK — 11, X, 9 (𝗜 𝗹𝗼𝘃𝗲 𝗦𝘂𝗯 𝗭𝗲𝗿𝗼 (𝗲𝘀𝗽𝗲𝗰𝗶𝗮𝗹𝗹𝘆 𝗕𝗶-𝗛𝗮𝗻) 𝗮𝗻𝗱 𝘁𝗵𝗲 𝗲𝗻𝘁𝗶𝗿𝗲 𝗟𝗶𝗻 𝗞𝘂𝗲𝗶 𝗰𝗹𝗮𝗻. 𝗛𝗔𝗧𝗘𝗥 𝗢𝗙 𝗦𝗖𝗢𝗥𝗣𝗜𝗢𝗡 𝗔𝗡𝗗 𝗔𝗟𝗟 𝗧𝗛𝗘 𝗥𝗔𝗧𝗦 𝗢𝗙 𝗧𝗛𝗘 𝗦𝗛𝗜𝗥𝗔𝗜 𝗥𝗬𝗨 𝗖𝗟𝗔𝗡 🧊)
